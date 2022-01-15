@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CodeMan98038
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: don't
